@@ -19,3 +19,9 @@
     "message": "This is a test message."
 }
 ```
+
+Thanks for your posting.
+
+My email: doriasenyz@gmail.com
+Skype: live:.cid.3d33a2d9617f5ffa
+WhatsAPP: +1 (854) 255-9537
